@@ -1,4 +1,4 @@
-## Oi ✌️
+## Oi, me chamo Renata e sou estudante do curso de Tecnologia em Redes de Computadores ✌️
 
 **Tecnologias e Ferramentas**
 
